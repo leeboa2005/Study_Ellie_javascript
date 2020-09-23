@@ -1,1 +1,1 @@
-# Study_Ellie_javascript
+# Study_Ellie_ㅡminigame
