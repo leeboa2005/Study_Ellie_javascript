@@ -1,1 +1,1 @@
-# Study_Ellie_ㅡminigame
+# Study_Ellie_minigame
